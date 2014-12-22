@@ -36,9 +36,51 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Babels balm: or The honey-combe of Romes religion With a neate draining and straining-out of the ram
+
+1. TO THE RIGHT HONOVRABLE, WILLIAM LORD HERBERT, of Cardiffe, Marmion St.Quintin, and Parr of Kendall; EARLE of Pembrooke, Chamberlaine of his MAIESTIES Household, Chauncelour of OXEFORD, Knight of the Noble Order of the GARTER; and one of his MAIESTIES most Honorable PRIVIE-COVNCELL.
+
+1. TO THE IVDICIOVS AND COVRTEOVS READER.
+
+1. The Authours Epistle Dedicatorie to the right Honorable Sir ROBERT NANTON, Knight, Principall Secretarie to the State, and one of his Maiesties most Honourable priuie Councell.
+
+1. THE TRANSLATOVR TO HIS TRVELY INGENVOVS and most ingenious Authour.
+
+1. To the most Dis-courteous Momish Catholike, whose greatest Grace is a graceles gracious Kisse at his Vn-holy Fathers Great-Toe, Greeting.
+
+1. IVDGEMENT VPON HIS WIT.
+
+1. The Argument of the Poeme.
+
+1. The Satyres of this Booke.
+
 #####Body#####
-Babels balm: or The honey-combe of Romes religion With a neate draining and straining-out of the ram
+
+1. OF THE POPES SVPREMACY.
+
+1. OF THE AVTHORITY OF THE POPE OF ROME.
+
+1. OF THE INTERPRETATION OF THE SCRIPTVRES.
+
+1. OF THE DAMNABLE DOCTRINE IN THE DECEIVEABLE SYNAGOGVE OF SATAN, AT ROME.
+
+1. OF THAT BLASPHEMOVS FALSE-FICTION OF MERIT, AND OF WORKS OF SVPEREROGATION, to the Derogation of Christs honour.
+
+1. OF THAT LOVDE LYE, AND FOND FICTION OF TRANSVBSTANTIATION.
+
+1. OF THE CORRVPT LIFE AND CONVERSATION, CVSTOMARY IN THE CITIE OF ROME.
+
+1. OF THE COVETOVS BVYING AND SELLING OF ALL THINGS VNDER THE POPES Power and Iurisdiction.
+
+1. OF THE MOST FORMIDABLE AND ABOMINABLE POWDER-PLOT BY PAPISTS, WITH THEIR horrible authorized libertie to perpetrate any Villany.
+
+1. AN EPILOGVE OF THE ANTECEDENTS.
+
+1. OF THE HOLY RELIQVES, TRADITIONS, AND OTHER ADMIRABLE INVENTIONS OF THE CHVRCH OF ROME.
+
+1. A CORROLLARIE TO THE PREMISES.
+
+1. VPON THIS BEE-HIVE OR HONEY-COMBE.
+
 **Types of content**
 
   * There are 3348 **verse** lines!
